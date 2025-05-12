@@ -42,8 +42,8 @@
 ### 🌐 Connect With Me
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/ranjankg/) *(replace with your LinkedIn)*  
-- 🧠 Instagram: [Corporate Homies](https://www.instagram.com/ranjan.kr.gupta/)  
-- 📺 YouTube: [Practical Thoughts](https://www.youtube.com/)
+- 🧠 Instagram:[Instagram](https://www.instagram.com/ranjan.kr.gupta/)  
+- 📺 YouTube: [Youtube](https://www.youtube.com/)
 
 ---
 
